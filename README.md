@@ -1,1 +1,1 @@
-Gabriel Varysco 😎🐒🐒🐒
+Gabriel Varysco 😎🐒🐒
